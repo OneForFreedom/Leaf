@@ -8,7 +8,7 @@
 
 ## 10/26/2025 - Alright, Formalities.   
 
-Woah! 4 hours? What in the fraud did YOU do Freedom? Well that's probably what's zooming through your head. Well this is the time I used whilst also using hackatime. This hackatime extension stole half my tracked time away. So I was left with 2 hours. But I'll need justice, so I'm journalling so I get my hours right. Btw I made decent progress with a leaf. The process of making it  is pretty time consuming. So it isn't hard to believe that it took 4 hours. I also had to reiterate it many time just for this measly thing to pop up. Well Ig you'd ought to see it. So here it is!
+Woah! 4 hours? What in the fraud did YOU do Freedom? Well that's probably what's zooming through your head. Well this is the time I used whilst also using hackatime. This hackatime extension stole half my tracked time away. So I was left with 2 hours. But I'll need justice, so I'm journalling so I get my hours right. Btw I made decent progress with a leaf. The process of making it  is pretty time consuming. So it isn't hard to believe that it took 4 hours. I also had to reiterate it many times just for this measly thing to pop up. Well Ig you'd ought to see it. So here it is!
 
 ![Screenshot 2025-10-26 223246](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NTgzMiwicHVyIjoiYmxvYl9pZCJ9fQ==--7f840e5c91564a3db2920f5d527f7b5b50ebd564/Screenshot%202025-10-26%20223246.png)
   
