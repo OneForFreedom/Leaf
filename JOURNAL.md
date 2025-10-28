@@ -17,3 +17,13 @@ Time taken: 4 hours.
 Total Time taken: 4 hours.
   
 
+## 10/28/2025 - Coloured a leaf?  
+
+So basically, i spent like 18 minutes going back and forth deciding on what the colour of the leaf should be. I settled with a warm dark oak sort of colour. Uhh the screenshot should accurately depict on what was implied.
+
+ ![Screenshot 2025-10-26 234108](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjM3NywicHVyIjoiYmxvYl9pZCJ9fQ==--3952bfc2cad629069d41a78a1e158cef1e9459b5/Screenshot%202025-10-26%20234108.png)
+
+Time taken: 0.3 hours.
+
+Total Time taken: 4.3 hours.  
+
