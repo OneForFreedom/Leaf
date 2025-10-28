@@ -17,7 +17,7 @@ Time taken: 4 hours.
 Total Time taken: 4 hours.
   
 
-## 10/28/2025 - Coloured a leaf?  
+## 10/28/2025 10 PM - Coloured a leaf?  
 
 So basically, i spent like 18 minutes going back and forth deciding on what the colour of the leaf should be. I settled with a warm dark oak sort of colour. Uhh the screenshot should accurately depict on what was implied. This is prolly the first leaf I'm gonna do. I am gonna spend my sweet sweet time on the next two.
 
@@ -26,4 +26,16 @@ So basically, i spent like 18 minutes going back and forth deciding on what the 
 Time taken: 0.3 hours.
 
 Total Time taken: 4.3 hours.  
+
+## 10/28/2025 11 PM - How tf do you sketch a maple leaf?  
+
+How hard is it to draw a maple leaf??? I spent like 30 mins on ts and the best I came up with was this:
+
+ ![Screenshot 2025-10-28 225932](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjM4NiwicHVyIjoiYmxvYl9pZCJ9fQ==--7add993d0fdff87614eab4282da07cfda5384594/Screenshot%202025-10-28%20225932.png)
+
+It's not like I'm gonna print a image and stick it to my moni-
+
+Time taken: 0.5 hours.
+
+Total Time taken: 4.8 hours.  
 
