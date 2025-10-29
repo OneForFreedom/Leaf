@@ -50,13 +50,13 @@ Total Time taken: 6.5 hours.
 After finally a good hunk of resketching, bsoding, and crashing. I finally present to you the finished product!! (Note the other leaf is also part of that finished product) I put in wayy too much time into ts :heaviersob: (I also got a good couple renders, lemme put a few here vv
 
 The initial leaf:
+
 ![Screenshot 2025-10-29 110430](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3NCwicHVyIjoiYmxvYl9pZCJ9fQ==--d7ce36b8c1a9ca27e9cc2607ab1bd10e9307d020/Screenshot%202025-10-29%20110430.png)![Screenshot 2025-10-29 110419](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3NiwicHVyIjoiYmxvYl9pZCJ9fQ==--cd97249de13ce7f000bf2d2217f3fae9a41dc653/Screenshot%202025-10-29%20110419.png)
-![Screenshot 2025-10-29 110456](/user-attachments/blobs/proxy/![Screenshot 2025-10-29 110443](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3MiwicHVyIjoiYmxvYl9pZCJ9fQ==--31672bdd1fde5e4749d48721329b619dd373b021/Screenshot%202025-10-29%20110443.png)eyJfcmFpbHMiOnsiZGF0YSI6NjQ3NSwicHVyIjoiYmxvYl9pZCJ9fQ==--7798a0dd653d88cdbb7739714af37f393fa21a35/Screenshot%202025-10-29%20110456.png)![Screenshot 2025-10-29 110406](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3MywicHVyIjoiYmxvYl9pZCJ9fQ==--4cb56343dfe4b0b071538b008761634f4ef3c675/Screenshot%202025-10-29%20110406.png)
+![Screenshot 2025-10-29 110443](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3MiwicHVyIjoiYmxvYl9pZCJ9fQ==--31672bdd1fde5e4749d48721329b619dd373b021/Screenshot%202025-10-29%20110443.png)![Screenshot 2025-10-29 110406](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3MywicHVyIjoiYmxvYl9pZCJ9fQ==--4cb56343dfe4b0b071538b008761634f4ef3c675/Screenshot%202025-10-29%20110406.png)
 
 The super cool maple leaf:
+
 ![Screenshot 2025-10-29 110724](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3OSwicHVyIjoiYmxvYl9pZCJ9fQ==--cca5ded352400af72c82740cbb6e42b61ad0f967/Screenshot%202025-10-29%20110724.png)![Screenshot 2025-10-29 110642](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ4MCwicHVyIjoiYmxvYl9pZCJ9fQ==--9d63577ab6ccba586551212eb7b586ab6dbeb47d/Screenshot%202025-10-29%20110642.png)![Screenshot 2025-10-29 110705](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3NywicHVyIjoiYmxvYl9pZCJ9fQ==--9df95ea78aa24f6c91a82215e61c12dd497b6524/Screenshot%202025-10-29%20110705.png)![Screenshot 2025-10-29 110652](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3OCwicHVyIjoiYmxvYl9pZCJ9fQ==--5f33ee881f892397387d482dd82a4a990144d51d/Screenshot%202025-10-29%20110652.png)
-
-
 
 Time taken: 2.5 hours.
 
