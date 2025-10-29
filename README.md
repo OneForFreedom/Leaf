@@ -16,4 +16,4 @@ The super cool maple leaf:
 
 ![Screenshot 2025-10-29 110724](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3OSwicHVyIjoiYmxvYl9pZCJ9fQ==--cca5ded352400af72c82740cbb6e42b61ad0f967/Screenshot%202025-10-29%20110724.png)![Screenshot 2025-10-29 110642](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ4MCwicHVyIjoiYmxvYl9pZCJ9fQ==--9d63577ab6ccba586551212eb7b586ab6dbeb47d/Screenshot%202025-10-29%20110642.png)![Screenshot 2025-10-29 110705](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3NywicHVyIjoiYmxvYl9pZCJ9fQ==--9df95ea78aa24f6c91a82215e61c12dd497b6524/Screenshot%202025-10-29%20110705.png)![Screenshot 2025-10-29 110652](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3OCwicHVyIjoiYmxvYl9pZCJ9fQ==--5f33ee881f892397387d482dd82a4a990144d51d/Screenshot%202025-10-29%20110652.png)
 
-## Here's the pricture of it acutally being built
+## Here's the picture of it acutally being built
