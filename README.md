@@ -8,6 +8,7 @@ As you walk through the forest, leaves start falling around you one by one. One 
 ## Here's the renders:
 
 The initial leaf:
+https://cad.onshape.com/documents/48f2d1aca93509432639895c/w/8d50937cf42b2f4e01d5b297/e/8520ea1e55fc6f6a629805e9?renderMode=0&uiState=6901fa3fd31c30ae797e55b7
 
 ![Screenshot 2025-10-29 110430](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3NCwicHVyIjoiYmxvYl9pZCJ9fQ==--d7ce36b8c1a9ca27e9cc2607ab1bd10e9307d020/Screenshot%202025-10-29%20110430.png)![Screenshot 2025-10-29 110419](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3NiwicHVyIjoiYmxvYl9pZCJ9fQ==--cd97249de13ce7f000bf2d2217f3fae9a41dc653/Screenshot%202025-10-29%20110419.png)
 ![Screenshot 2025-10-29 110443](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3MiwicHVyIjoiYmxvYl9pZCJ9fQ==--31672bdd1fde5e4749d48721329b619dd373b021/Screenshot%202025-10-29%20110443.png)![Screenshot 2025-10-29 110406](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQ3MywicHVyIjoiYmxvYl9pZCJ9fQ==--4cb56343dfe4b0b071538b008761634f4ef3c675/Screenshot%202025-10-29%20110406.png)
