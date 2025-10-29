@@ -39,3 +39,15 @@ Time taken: 0.5 hours.
 
 Total Time taken: 4.8 hours.  
 
+## 10/29/2025 - What?  
+
+Edit: I printed it and stuck it to my monitor.
+
+Ts was not meant to take 1.7 hours :Heavysob: I was expecting this to take me like 12 minutes, but then I realised that this was meant to have much much MUCH more detail. So here it is.
+
+![image](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6NjQwNSwicHVyIjoiYmxvYl9pZCJ9fQ==--3a1602a6903e18a21d47d49da6013c66b38fb8e0/image.png)
+
+Time taken: 1.7 hours.
+
+Total Time taken: 6.5 hours.  
+
